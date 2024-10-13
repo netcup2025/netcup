@@ -1,4 +1,4 @@
-# netcup
+# netcup Free 5€ coupon code
 
 36nc17283971579	Gutschein 5 Euro (fuer Neukunden, keine Domains)	08.10.2024	Unlimited validity	
 
